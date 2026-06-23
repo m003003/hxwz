@@ -226,4 +226,4 @@
 
 原来由 HT 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=35814
+（网址 略）

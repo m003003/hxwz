@@ -32,7 +32,7 @@ Long time no see! How do you do? I’m very ok so don’t think about me.  Hear 
 
 笔落至此，刚巧洋老公喜滋滋地向我炫耀他物色来的价廉物美的落地灯，待我仔细阅读了包装盒上的注意事项后，大喜庆幸打着灯笼都找不到的升级现代化中式英语样板，得来却全不费功夫，于是赶紧用手机照下来，借以本文画龙点睛之用。
 
-http://www.flickr.com/photos/12087175@N07/8201660142/in/photostream
+（网址 略）
 
 □ 读者投稿
 
@@ -48,4 +48,4 @@ http://www.flickr.com/photos/12087175@N07/8201660142/in/photostream
 
 原来由 wy 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=34285
+（网址 略）

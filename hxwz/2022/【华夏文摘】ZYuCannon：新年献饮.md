@@ -38,7 +38,7 @@ Re：
 
 ZYuCannon：新年献吃
 
-新年献吃讨论线: http://my.cnd.org/modules/newbb/viewtopic.php?topic_id=100549&forum=2&149
+新年献吃讨论线: （网址 略）
 
 (5) 尼采，《悲剧的诞生》。
 
@@ -80,7 +80,7 @@ ZYuCannon：新年献吃
 
 (15) 美国心脏病学会第70届年度科学会议上公布的研究认为，适量饮酒与不喝酒或过度饮酒的人相比，与死于心血管疾病的风险较低有关。发表日期为2021年5月17日。
 
-https://www.dailymail.co.uk/sciencetech/article-9549413/Alcohol-moderation-help-heart-study-reveals.html
+（网址 略）
 
 (16) 赫拉克利特言论录。
 

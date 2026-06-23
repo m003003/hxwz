@@ -70,4 +70,4 @@ The History of CND Began on March 6, 1989
 
 原来由 eic 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=21976
+（网址 略）

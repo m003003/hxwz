@@ -92,7 +92,7 @@ Just the way you are皆应是你
 
 全曲的录音链接在这里：
 
-http://www.tudou.com/programs/view/lnMhwgqYFoY/
+（网址 略）
 
 有时想到这事：老李这辈子的上半部分是中国人，直到现在还是颗中国心。后半辈子成了美国人，而且真心热爱这个国家。 你说这怪不怪？矛盾不矛盾？
 
@@ -116,4 +116,4 @@ http://www.tudou.com/programs/view/lnMhwgqYFoY/
 
 原来由 thchen 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=33167
+（网址 略）

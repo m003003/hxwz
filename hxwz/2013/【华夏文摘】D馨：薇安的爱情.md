@@ -58,4 +58,4 @@
 
 原来由 guzheng 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=38334
+（网址 略）

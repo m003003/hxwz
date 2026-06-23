@@ -78,17 +78,17 @@ God bless each and every one of you, especially China.
 
 附上两个book trailer视频。第一个是专业的公关公司拍的，第二个是我自己拍的。
 
-https://www.youtube.com/watch?v=yw2Uj1M-vCc&t=17s
+（网址 略）
 
-https://www.youtube.com/watch?v=qXZDNx_SVrE&t=30s
+（网址 略）
 
 Kirkus Reviews的书评：
 
-https://www.kirkusreviews.com/book-reviews/anna-wang/inconvenient-memories/
+（网址 略）
 
 最后，希望喜欢本书的读者能向本地公共图书馆写信推荐此书。感谢大家的支持！
 
-https://www.amazon.com/Inconvenient-Memories-Personal-Tiananmen-Incident/dp/0996640576
+（网址 略）
 
 作者投稿
 

@@ -20,7 +20,7 @@
 
 用文字叙述这个战役的过程比较枯燥，这里有John Lee Hancock 在2004年拍摄的The Alamo的链接。电影不错，我看了一遍，认为同我阅读的资料比较吻合。虽然是是艺术创作，但是人物、过程、背景都有比较准确的历史根据。
 
-http://www.56.com/u16/v_NTM5MTc0MzA.html
+（网址 略）
 
 为了帮助理解这个历史事件，我先给出一个大致的历史时间线。
 
@@ -134,4 +134,4 @@ http://www.56.com/u16/v_NTM5MTc0MzA.html
 
 原来由 thchen 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=33959
+（网址 略）

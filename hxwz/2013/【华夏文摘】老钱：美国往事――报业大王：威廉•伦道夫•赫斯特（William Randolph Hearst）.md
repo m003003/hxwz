@@ -168,4 +168,4 @@
 
 原来由 thchen 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=34962
+（网址 略）

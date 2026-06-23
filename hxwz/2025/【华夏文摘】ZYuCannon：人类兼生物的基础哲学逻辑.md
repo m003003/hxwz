@@ -168,7 +168,7 @@ N. Campbell, et al., Biology, 8th Ed, Pearson 2008.
 
 SkyfireFace, “Would you accept becoming an immortal civilization if it meant we had to stop having children?” Reddit 2021. Extracked and analyzed on Sept 13, 2025.
 
-https://www.reddit.com/r/Futurology/comments/pdg1qx/would_you_accept_becoming_an_immortal/
+（网址 略）
 
 Bruce Alberts, Molecular Biology of Cells, 7th Ed, W.W. Norton, 2022.
 
@@ -212,7 +212,7 @@ M. Knight, “Walking Tall: Why Did Humans Switch from Four to Two-Legged Stride
 
 Echoes of the Ancients， “Horrific Sexual Practices of Cavemen”, Youtube cast, extracted on Oct 2, 2025. Link:
 
-https://www.youtube.com/watch?v=vonQpj4xcD4.
+（网址 略）
 
 Malay Mail, “Man sets new world record by sleeping with 57 women in a day”, June 8, 2017.
 

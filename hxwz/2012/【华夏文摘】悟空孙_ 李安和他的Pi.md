@@ -106,4 +106,4 @@ pi和他母亲，还有船上的厨子和一个中国水手一起上了救生船
 
 原来由 siyu 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=34419
+（网址 略）

@@ -34,4 +34,4 @@ Tebowing 来源于美式足球运动员Timothy “Tim” Tebow 的名字。 Tebo
 
 原来由 siyu 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=31123
+（网址 略）

@@ -6,7 +6,7 @@
 
 希望您点击
 
-http://hx.cnd.org/support/
+（网址 略）
 
 支持CND《华夏文摘》新的一年的运作！
 

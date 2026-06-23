@@ -28,4 +28,4 @@
 
 原来由 baichuan 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=37105
+（网址 略）

@@ -154,4 +154,4 @@
 
 原来由 guzheng 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=30699
+（网址 略）

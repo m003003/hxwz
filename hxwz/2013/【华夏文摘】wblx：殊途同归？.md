@@ -68,4 +68,4 @@ www.cato.org/sites/cato.org/files/pubs/pdf/PA694.pdf)
 
 原来由 guzheng 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=37416
+（网址 略）

@@ -1,12 +1,12 @@
 编者注：原ＣＮＤ南京籍编辑余子坚１９９８年２月采访了张纯如女士，本刊特将此文重登，并将英文原文附后，以表对张纯如女士的纪念。ＣＮＤ“南京大屠杀纪念馆”链接：
 
-http://museums.cnd.org/njmassacre/
+（网址 略）
 
 ※　　　※　　　※　　　※　　　※
 
 〖刊登于1998年4月24日《华夏文摘》第三六八期 (CM9804C) 〗
 
-http://www.cnd.org/HXWZ/CM98/cm9804c.hz8.html
+（网址 略）
 
 【人物专访】《南京浩劫》作者张纯如
 
@@ -14,7 +14,7 @@ http://www.cnd.org/HXWZ/CM98/cm9804c.hz8.html
 
 自该书去年底发行以来，不断有读者询问购买此书的情况。张纯如在采访中也说：“为了提高对日本侵略罪行的认识，海外华人可以做的一件事是买一本我的书，捐给当地的社区公共图书馆。”读者可以通过ＣＮＤ“网上书架”:
 
-http://www.cnd.org/bookshelf/
+（网址 略）
 
 。很方便地购得此书。〗
 
@@ -266,7 +266,7 @@ With this service, we look forward to benefiting both CND and the readers.
 
 Readers may find our selections on CND web :
 
-http://www.cnd.org/bookshelf/.
+（网址 略）
 
 The Feature Book of this week is Iris Chang’s “The Rape of Nanking: The
 
@@ -284,7 +284,7 @@ purchased with significant discount via online secure credit card ordering
 
 as linked from:
 
-http://www.amazon.com/exec/obidos/ASIN/0140277447/chinanewsdigestc/002-4990446-2961635
+（网址 略）
 
 “The Rape of Nanking” is the first English book ever written on the
 
@@ -990,7 +990,7 @@ International Relations. Transcripts of the bill is available on the
 
 Internet
 
-http://thomas.loc.gov/cgi-bin/query/z?c105:H.CON.RES.126:
+（网址 略）
 
 2. For CND coverage on the Lipinski Bill and other US activities against
 
@@ -1110,4 +1110,4 @@ Susan Rabiner’s phone number is 212-279-0316.
 
 原来由 lq 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=8383
+（网址 略）

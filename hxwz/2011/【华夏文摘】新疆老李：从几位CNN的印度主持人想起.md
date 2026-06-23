@@ -40,4 +40,4 @@ Fareed Zakaria在周末开讲的Fareed Zakaria GPS很有特色，内容纵观全
 
 原来由 siyu 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=30127
+（网址 略）

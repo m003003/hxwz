@@ -34,4 +34,4 @@
 
 原来由 wy 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=34162
+（网址 略）

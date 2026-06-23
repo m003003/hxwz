@@ -4,17 +4,17 @@
 
 CND《华夏文库》希望读者们向朋友们介绍《方励之纪念文集》网址：
 
-http://fang-lizhi.hxwk.org/
+（网址 略）
 
 。 目前中国大陆读者还可直接访问。文集设有留言页
 
-http://fang-lizhi.hxwk.org/guest-book/
+（网址 略）
 
 ，欢迎大家将以前散于各线的追思颂词贴上。也希望大家提供您保存着的有关方励之教授的史料。
 
 李淑娴教授致悼词视频见：
 
-http://www.youtube.com/watch?v=TEWavJPkWVA
+（网址 略）
 
 □ CND
 
@@ -30,4 +30,4 @@ http://www.youtube.com/watch?v=TEWavJPkWVA
 
 原来由 HT 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=32221
+（网址 略）

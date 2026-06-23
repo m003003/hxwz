@@ -12,7 +12,7 @@
 
 “江南style”没提半句“大韩民国”，不说半个“爱”字，里面没有悲欢离合、儿女情长。 其旋律也很简单。 他的歌曲谈不上半点高尚，但他既不装酷也不装B。 按照传统的模式，他的歌曲没有任何指望成为全球劲曲。 这首有点低级，有点操蛋，有点疯狂，有点混乱的歌曲在如此短的时间内爆红全球，那是靠了网络，靠了如今的世界大众娱乐平台――Youtube。 网民们甚至还没有听懂唱词就爱上那首歌曲了。 美国的网民既有把“O～oppaGangnam Style”说成“Open Condom Store”的，也有把它说成“Open Condom Star”的。 管TNND，who cares韩国人说什么! 音乐本来就不是靠唱词震撼心灵的。
 
-靠Youtube走红，这已经成为当今歌曲走红世界的一个崭新的模式。Carly Rae Jepsen 的 “Call me Maybe” （https://www.youtube.com/watch?v=fWNaR-rxAic）在Youtube一炮打响，并创造出当时的Youtube观看记录，迅速传遍世界。 一位暂时还不知名的小伙子靠他的“One direction C live while we’re young”一曲打响第一炮。 他梦想追赶当代歌星贾斯汀.比伯。
+靠Youtube走红，这已经成为当今歌曲走红世界的一个崭新的模式。Carly Rae Jepsen 的 “Call me Maybe” （（网址 略）在Youtube一炮打响，并创造出当时的Youtube观看记录，迅速传遍世界。 一位暂时还不知名的小伙子靠他的“One direction C live while we’re young”一曲打响第一炮。 他梦想追赶当代歌星贾斯汀.比伯。
 
 单单靠Youtube的观看次数既可走红，也可走偏。 同中国的网络红人芙蓉JJ一样，Youtube也出过 Rebecca Black 那样的负人气歌星。 但那个国际大舞台上是永远不会造出世界烂声音的。
 
@@ -26,19 +26,19 @@
 
 附录：江南style的版本精选
 
-江南style：原始版：http://www.youtube.com/watch?feature=player_detailpage&v=9bZkp7q19f0
+江南style：原始版：（网址 略）
 
-美国海军版：http://www.youtube.com/watch?v=xhHufV9g4k4&feature=player_detailpage
+美国海军版：（网址 略）
 
-中国红军版：http://www.youtube.com/watch?feature=player_embedded&v=5mhFaAzB5cE
+中国红军版：（网址 略）
 
-德国希特勒版：https://www.youtube.com/watch?v=oIMXL-B_Ax4&feature=player_detailpage
+德国希特勒版：（网址 略）
 
-金正日版：http://www.youtube.com/watch?v=_cG7ZVBXQII&feature=player_detailpage
+金正日版：（网址 略）
 
-康奈尔大学版：http://www.youtube.com/watch?v=kWetGqX9uFc
+康奈尔大学版：（网址 略）
 
-伦敦版：http://www.youtube.com/watch?v=lMmyeXeXeK0
+伦敦版：（网址 略）
 
 □ 读者投稿
 
@@ -54,4 +54,4 @@
 
 原来由 siyu 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=33791
+（网址 略）

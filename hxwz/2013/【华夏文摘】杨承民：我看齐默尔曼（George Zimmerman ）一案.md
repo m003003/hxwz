@@ -62,4 +62,4 @@
 
 原来由 qianren 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=36720
+（网址 略）

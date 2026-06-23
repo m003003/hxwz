@@ -60,11 +60,11 @@
 
 1.耶鲁医生遭前华人同事枪杀，凶手照片曝光（四篇报道+照片）
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25663
+（网址 略）
 
 2. 约翰E李：说说王立山事件
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25668
+（网址 略）
 
 华　　夏　　文　　摘
 
@@ -86,23 +86,23 @@ CHINA　NEWS　DIGEST　―　CHINESE　MAGAZINE（CND－CM）
 
 ⒈春天的滋味　　　　　　　　　　　　　　　　　　　　　　　　　　　今　昔
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25677
+（网址 略）
 
 ⒉解读萨马兰奇的人生转折　　　　　　　　　　　　　　　　　　　　　洪　圭
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25676
+（网址 略）
 
 ⒊王立山事件　　　　　　　　　　　　　　　　　　　　　　　　　　　清衣江
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25675
+（网址 略）
 
 ⒋从王立山暴力事件看华人的生存　　　　　　　　　　　　　　　　　　雪　城
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25674
+（网址 略）
 
 ⒌暗恋唐伯虎　　　　　　　　　　　　　　　　　　　　　　　　　　瓜州州长
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25673
+（网址 略）
 
 ――――――――――――――――――――――――――――――――――――
 
@@ -134,7 +134,7 @@ http://my.cnd.org/modules/wfsection/article.php?articleid=25673
 
 请光临
 
-http://www.cnd.org
+（网址 略）
 
 浏览新闻和图片、华夏快递、华夏文库、华夏论坛
 
@@ -146,13 +146,13 @@ http://www.cnd.org
 
 体现了自由论坛涵盖全频谱的特色。欢迎各位继续在
 
-http://www.cnd.org
+（网址 略）
 
 上讨论自己感兴趣的任何话题。
 
 《华夏文库》收集了本刊６７１位作者和３５个专栏的文章，欢迎大家来
 
-http://www.cnd.org
+（网址 略）
 
 浏览。
 
@@ -172,4 +172,4 @@ http://www.cnd.org
 
 原来由 guzheng 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=25675
+（网址 略）

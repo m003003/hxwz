@@ -26,4 +26,4 @@
 
 原来由 admin 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=7015
+（网址 略）

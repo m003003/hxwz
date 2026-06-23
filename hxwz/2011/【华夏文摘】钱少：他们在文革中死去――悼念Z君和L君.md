@@ -256,4 +256,4 @@ Z君与C女士失去联系将近一个月，心里很牵挂。那时一般人用
 
 原来由 thchen 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=29226
+（网址 略）

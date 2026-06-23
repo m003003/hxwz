@@ -312,4 +312,4 @@
 
 原来由 siyu 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=32964
+（网址 略）

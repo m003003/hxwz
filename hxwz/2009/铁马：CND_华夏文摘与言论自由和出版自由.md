@@ -40,11 +40,11 @@
 
 1．伊文：“大坝吞了修大堤的钱”一文中严重误导和不实之处
 
-http://www.cnd.org/HXWZ/CM98/cm9809b.hz8.html
+（网址 略）
 
 2．做人不要CND
 
-http://my.cnd.org/modules/newbb/viewtopic.php?topic_id=57335&forum=2&60
+（网址 略）
 
 日期:
 
@@ -56,4 +56,4 @@ http://my.cnd.org/modules/newbb/viewtopic.php?topic_id=57335&forum=2&60
 
 原来由 yq 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=21765
+（网址 略）

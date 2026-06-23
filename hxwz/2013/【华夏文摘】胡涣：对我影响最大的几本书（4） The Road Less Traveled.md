@@ -68,4 +68,4 @@ Grace的概念也把镜头的聚焦拉远。爱的能力不只是来自于自己
 
 原来由 wy 发布在URL:
 
-http://my.cnd.org/modules/wfsection/article.php?articleid=35610
+（网址 略）
